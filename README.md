@@ -2,6 +2,8 @@
 
 I am currently a PhD student at the Seismological Laboratory, California Institute of Technology (Caltech), CA, USA (2025-)
 
+Not looking for networking or collaborations at the moment. Only reach out if it's truly urgent!!! 
+
 ## Research Experience
 
 **Research Assistant** — Institute of Earth Sciences, Academia Sinica, Taipei, Taiwan (2022–2024)
